@@ -1,5 +1,3 @@
-# IgniteFirework-log
-
 Interested in Economics, Data Science, and Cybersecurity
 
 ---  
