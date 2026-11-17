@@ -1,4 +1,4 @@
-Interested in Economics, Data Science, and Cybersecurity
+Interested in Financial Engineering, Artificial Intelligence, and Cybersecurity
 
 ---  
 
